@@ -1,1 +1,1 @@
-bye bye microsoft. please visit https://git.osuv.de/m/markuman/mailpw_change
+bye bye microsoft. please visit https://git.osuv.de/m/mailpw_change
